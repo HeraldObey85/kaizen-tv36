@@ -1,4 +1,4 @@
-#  
+#  kaizen secret Script offers the most advanced kaizen Script, with auto-farm and teleport. Perfect for dominating any match.
 
 
 
